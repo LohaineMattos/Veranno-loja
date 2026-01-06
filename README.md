@@ -1,0 +1,1 @@
+# Veranno-loja
